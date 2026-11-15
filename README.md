@@ -1,0 +1,1 @@
+Bioera gizlilik politikasi sayfasi.
